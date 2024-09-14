@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Mark Xyruz
+- 👀 I’m interested in Gaming and Coding
+- 🌱 I’m currently learning Coding and it'll be great if you could help. 
+- 💞️ I’m looking to collaborate in the future if you're up to it 
+- 📫 You can Contact me through my School/work email address: mxgm2023-3616-46744@bicol-u.edu.ph, markxyruz.magnampo@gmail.com or through my Facebook Xyruz Magnampo.
+- 😄 You can call me by my second name Xyruz, and my Pronouns are He/Him
